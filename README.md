@@ -2,4 +2,4 @@
 
 Equity Research Report &amp; 3-Statement Financial Model on Visa Inc.
 
-Equity Research Report In Progress. Getting Fixed currently.
+**Equity Research Report (In Progress/Getting Fixed currently)**
